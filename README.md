@@ -2,7 +2,7 @@
 
 ### I'm 17 years young and a Developer and Designer, since 2014. Making software with ❤️
 
-Currently developing 👨‍💻  @lucsoft/WebGen and @lucsoft/HmSYS. So you can make greater Projects 🌱<br>
+Currently developing 👨‍💻  @lucsoft/WebGen and @lucsoft/HmSYS. So you can make faster & better Projects 🌱<br>
 You can find my on Discord (lucsoft#7765) or reace me on other ways ✨ <br>
 If you wannt to give me Coffee. Feel free! every donation is awesome 🦑
 
